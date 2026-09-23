@@ -1,7 +1,7 @@
 ㅤ<p align="center">ㅤㅤ <img width="1000" height="1000" alt="banner" src="164_sin_titulo_20260918135750.png" />
 ㅤ<p align="center">ㅤㅤ ![](https://komarev.com/ghpvc/?username=seraphicnaturei&color=dbc8e8&label=prince&base=58)
 
-ㅤ<p align="center">ㅤㅤ <img width="700" height="700" alt="sparxielove" src="163_sin_titulo_20260918135609.png" />
+ㅤ<p align="center">ㅤㅤ <img width="700" height="700" alt="sparxielove" src="163_sin_título_20260923124702.png" />
 ㅤ
 ㅤ
 ㅤ
